@@ -1,0 +1,1 @@
+# ThienThanh-12A6-KTTH-HK2
